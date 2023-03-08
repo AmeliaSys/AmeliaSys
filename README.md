@@ -11,15 +11,15 @@ ___
 #### In my past lives I:
 _____
 - 🦠 Designed survey research and modeled data to guide the New Zealand Government on their COVID-19 response
-- 📈 Used data analytics to scope new markets, design new products and measure brand performance @ TRA
-- 👩‍🎓 Graduated with a Bachelor of Arts and Commerce from the University of Auckland
+- 📈 Used data analytics to scope new markets, design new products and measure brand performance for my clients @ The Research Agency (TRA)
+- 👩‍🎓 Graduated with a Bachelor of Arts and Commerce from the University of Auckland (Economics, Psychology, Marketing
 
 
 
 #### More about me:
 _____
 - I'm from Auckland, 🇳🇿 
-- I love ⛷, 🏃‍♀️, 📷, ✈️
+- I love ⛷  🏃‍♀️  📷  ✈️
 
 
 
