@@ -19,8 +19,7 @@ _____
 #### More about me:
 _____
 - I'm from Auckland, 🇳🇿 
-- I love ⛷, 🏃‍♀️, 🥾 and 🧘‍♀️
-- I desperately want a 🐩
+- I love ⛷, 🏃‍♀️, 📷, ✈️
 
 
 
